@@ -1,5 +1,5 @@
-# python基础知识
+# Python基础知识
 
-# tensorflow
+# Tensorflow
 
-# pytorch
+# PyTorch
