@@ -17,3 +17,6 @@
 ## Debug
 ## coredump
 
+# python
+
+# C++
