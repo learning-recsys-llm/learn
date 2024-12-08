@@ -1,0 +1,119 @@
+吃的：
+- 饭：煲仔饭（香菇滑鸡、腊味、叉烧）、隆江猪脚饭
+- 肠粉：斋（没放肉的）、鸡蛋、虾仁、牛肉、腊味、叉烧
+- 肉：叉烧、白切鸡、烧鸭、豉油鸡、清远鸡、鸡扒（其实就是鸡排）、白灼虾、炒花甲、滑蛋虾仁、窝蛋牛肉、鱼皮
+- 青菜：白灼/清炒芥兰/菜心、茭白随便炒个啥肉、空心菜、上汤豆苗/娃娃菜
+- 粥：艇仔粥、砂锅粥（海鲜类的干贝、虾、蟹、花蛤各种组合，正常的鸡肉、瘦肉、牛肉的也行）
+- 汤：老火靓汤（排骨、玉米+胡萝卜、虫草花、乌鸡、桂圆啥的各种组合，还有一些不知道叫啥的药材相关的）、苦瓜肉片汤、苦瓜白贝汤、潮汕牛肉丸汤
+- 面：云吞、云吞面、干炒牛河、湿炒牛河、粿条汤、猪脚面（电视剧《狂飙》里的）、捞面（第一次是在澳门吃的）
+- 糖水：双皮奶、姜撞奶、龟苓膏、烧仙草（福建/台湾的） 
+
+玩的：
+- 深圳真不太了解。。华为在龙岗那边，可以去华为总部参观下（不过可能得认识huawei员工才能进，当时我有同学在huawei，研一的时候去围观了下），挺大一片的，不过现在好像大都搬去东莞了，不知道还剩多少在那边
+- 广州：
+  - 白云山：其实挺矮的一座山，但去广州总得去一次吧
+  - 越秀山+越秀公园：在老城区，旁边就是广州火车东站，刚上学的时候坐过火车，就是在那个站，其实算是个比较大的公园，里面有个越秀山足球场，当时是广州的一支球队的主场
+  - 海心沙+广州塔：当年广州亚运会开闭幕式的主场地，还是不错的
+  - 珠江：好像有个啥地方可以坐那种游船，去夜游珠江什么的，我知道我们学校南校区的北门有个港口，应该还有别的上船地点，当然，还有很便宜的好像两块钱还是多少，就那种纯轮渡的船，其实也可以看珠江的
+  - 天河：有个购物中心，算比较繁华的地方吧，还有个天河体育场，也是当年广州恒大足球队的主场
+  - 北京路、上下九：比较出名的步行街
+  - 沙面：比较小清新+异域风情的地方，有点像天津的那种使馆区，有不少在那拍婚纱照啥的
+  - 长隆：游乐场那种，在广州的最南边
+  - 黄埔军校遗址：其实没啥东西，当时学车的驾校在那附近，就去围观过一次
+  - 还有我们学校中山大学的几个校区咯：
+    - 老校区（南校区）比较有历史感，可以去看看，
+    - 我当时在的东校区（『大学城北』那个地铁站）在一个小岛上，里面有很多大学，当年可以随便去其他学校逛的，现在因为疫情好像都围起来了。。小岛有个中心湖，我们学校旁边还有个大学城中心体育场（当时亚运会的时候我在那做志愿者）
+    - 北校区算了没啥好看的，都是医学院的，挺小的其实
+    - 还有新的深圳校区！不过我没去过。。
+  - 还有一些没去过的，但好像也比较有名的
+- 佛山：没怎么去过，但在广州坐地铁可以直接去（广佛同城有个专门的地铁线），就是有点远
+- 珠海：我就去过我们学校的珠海校区，没去过别的地方。。那边还是可以的 很大一片
+- 别的地方也没咋去过啦，记得大二我们班去阳江还是哪里露营了，冻傻了
+
+听的：（对应的链接是b站里我看对应的播放量比较高的）
+btw，其实我刚上大学的时候完全没听过粤语歌，也没看过什么香港电影，听到广东的同学平时讲粤语一度很烦，直到军训的时候正好遇到校园歌手比赛决赛，就和同学去听了下，其中有一个选手唱了陈奕迅的《单车》，当时居然有全场大合唱，被震撼到了，我同学说其实那个选手不是广东人，粤语唱的还挺标准的，那个时候就开始对粤语歌感兴趣了，下面主要列出比较好听/出名的粤语歌
+- Beyond
+  - 《海阔天空》（感觉是广东传唱度最高的，没有之一）：https://www.bilibili.com/video/BV1Tq4y1778D/
+  - 《光辉岁月》：https://www.bilibili.com/video/BV1854y177F2
+  - 《情人》：https://www.bilibili.com/video/BV1Uv411i7Sn/
+  - 《喜欢你》：https://www.bilibili.com/video/BV1PU4y1k7ib/，当然，邓紫棋在《我是歌手》上的翻唱后来更火：https://www.bilibili.com/video/BV1X7411N7kA/
+  - 《真的爱你》：https://www.bilibili.com/video/BV1Fx411g76C/，讲的是母爱的故事
+- 古巨基：两首串烧咯（ktv麦霸专属，唱完半小时就过去了）
+  - 国语的《情歌王》：https://www.bilibili.com/video/BV1mJ411e7X7/
+  - 粤语的《劲歌金曲》：https://www.bilibili.com/video/BV1uf4y1i7hd/
+- 张国荣
+  - 《风继续吹》：https://www.bilibili.com/video/BV1qs4y177wL/
+  - 《春夏秋冬》：https://www.bilibili.com/video/BV12s411X7oS/
+  - 《当年情》：https://www.bilibili.com/video/BV1mD4y1S7CP/
+- 张学友：《祝福》《吻别》啥的就不列了
+  - 《李香兰》：https://www.bilibili.com/video/BV1To4y1s7fc/，对应的国语版是《秋意浓》：https://www.bilibili.com/video/BV1z4411C7hJ/
+  - 《遥远的她》：https://www.bilibili.com/video/BV1324y1u7Mn/，陈奕迅的版本因为有个破音也挺火的：https://www.bilibili.com/video/BV1Nr4y1M7nt/
+  - 《一路上有你》：不是粤语的，https://www.bilibili.com/video/BV1Lb4y1z7Xx/，此外《中国好声音》里的这个版本挺火的 https://www.bilibili.com/video/BV1jx411q7uq/
+  - 《我真的受伤了》：https://www.bilibili.com/video/BV1ps4y1s7EL/
+  - 《我等到花儿也谢了》：https://www.bilibili.com/video/BV1aS4y1U7aw/
+- 刘德华
+  - 《一起走过的日子》：https://www.bilibili.com/video/BV1fK4y1W79n/
+- 谭咏麟
+  - 《讲不出再见》：https://www.bilibili.com/video/BV1Zu411Y7RY/ ，还有一段是这个，当时看到视频就觉得挺震撼的：https://www.bilibili.com/video/BV1vM411U78h/
+- 李克勤
+  - 《红日》：传唱度也在top的行列，https://www.bilibili.com/video/BV1ab4y1z7VC/
+  - 《月半小夜曲》：https://www.bilibili.com/video/BV14h411i7Uk/
+- 杨千嬅
+  - 《可惜我是水瓶座》：https://www.bilibili.com/video/BV16T4y1k7FD/
+  - 《野孩子》：https://www.bilibili.com/video/BV1754y1S7qd/
+  - 《少女的祈祷》：https://www.bilibili.com/video/BV1sK411J74T/
+  - 《小城大事》：https://www.bilibili.com/video/BV1ds411P7tT/
+  - 《假如让我说下去》：https://www.bilibili.com/video/BV1dM4y1q7FC/
+  - 《再见二丁目》：https://www.bilibili.com/video/BV1of4y1Y7pd/
+- Twins
+  - 《下一站天后》：https://www.bilibili.com/video/BV1KA411T7bU/
+- 陈慧娴
+  - 《千千阙歌》：https://www.bilibili.com/video/BV1PW411i7wi/，梅艳芳有一首同曲不同词的《夕阳之歌》：https://www.bilibili.com/video/BV1j34y1o7SK/
+  - 《今天的爱人是谁》：https://www.bilibili.com/video/BV1P4411k7sb/，当年我们学校图书馆的闭馆音乐之一。。
+- 王菲
+  - 《约定》：https://www.bilibili.com/video/BV1NK4y1f7m8/，陈奕迅的翻唱版本好像也很火：https://www.bilibili.com/video/BV1Pv411E7Jg/
+  - 《暧昧》：https://www.bilibili.com/video/BV1Zr4y1A7wV/
+  - 《爱与痛的边缘》：https://www.bilibili.com/video/BV1JZ4y1w7jF/，《有多少爱可以重来》的粤语版
+- 周慧敏
+  - 《痴心换情深》：，https://www.bilibili.com/video/BV1sb4y1W77V/，当年我们学校图书馆的闭馆音乐之二。。
+- 陈奕迅：大学的时候太喜欢他的歌了，太多了。。以至于都能随便拿一些歌名出来串在一起写好几段话了，不贴链接了，自己去搜吧
+  - 《单车》：讲的是父爱的故事，https://www.bilibili.com/video/BV1TA41147Pd/
+  - 《浮夸》：
+  - 《明年今日》：，国语版《明年今日》
+  - 《K歌之王》：国语版，粤语版
+  - 《富士山下》，国语版《爱情转移》
+  - 《不如不见》，国语版《好久不见》
+  - 《白玫瑰》，国语版《红玫瑰》
+  - 《圣诞结》：
+  - 《岁月如歌》，国语版《兄妹》
+  - 《人来人往》：
+  - 《Shall we talk》
+  - 《最佳损友》
+  - 《打回原形》《防不胜防》《十面埋伏》：https://www.bilibili.com/video/BV1U54y1r76j/
+  - 《葡萄成熟时》
+  - 《七百年后》
+  - 《无人之境》
+  - 《1874》
+  - 《落花流水》
+  - 《陀飞轮》：有个比较有趣的版本，可以从1min处开始看：https://www.bilibili.com/video/BV1Sb4y1x7z2/
+  - 《一丝不挂》
+  - 《伤信》
+  - 《夕阳无限好》
+  - 《最冷一天》
+  - 《沙龙》：讲的是拍照/摄影
+  - 《与我常在》
+  - 再来几个纯国语的：《淘汰》《孤独患者》《稳稳的幸福》《谢谢侬》《想哭》《陪你度过漫长岁月》《阴天快乐》《全世界失眠》《我们》《不要说话》《心的距离》
+- 卫兰
+  - 《就算世界无童话》：https://www.bilibili.com/video/BV18A411V7GV/
+- 谢安琪：
+  - 《喜帖街》：https://www.bilibili.com/video/BV1PE411P7Qu/
+  - 《钟无艳》：https://www.bilibili.com/video/BV147411s7EB/
+  - 《年度之歌》：https://www.bilibili.com/video/BV1ia411W7hV/
+- 其他：
+  - 许美静《倾城》：https://www.bilibili.com/video/BV1Qb41167rH/
+  - 郑融《红绿灯》：https://www.bilibili.com/video/BV1ye411e7Us/
+  - 郑中基《无赖》：https://www.bilibili.com/video/BV1XD4y1q7Z5/
+  - 梁汉文《七友》：https://www.bilibili.com/video/BV1QU4y1j7FY/
+  - 孙耀威《爱的故事上集》：https://www.bilibili.com/video/BV1pb411q7Sy/
+  - 卢冠廷《一生所爱》：https://www.bilibili.com/video/BV1Z4421Q7vV/ 《大话西游》片尾曲 
+
